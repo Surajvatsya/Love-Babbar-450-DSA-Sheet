@@ -5,5 +5,5 @@
 DSA Cracker Sheet by Love Babbar 🙏🏻
 
 
-                                                                              🎇 DSA 450 Cracker  🎇
-                                                                   💎   YOUR GATEWAY TO CRACK PRODUCT BASED  💎 
+                             🎇 DSA 450 Cracker  🎇
+                  💎   YOUR GATEWAY TO CRACK PRODUCT BASED  💎 
